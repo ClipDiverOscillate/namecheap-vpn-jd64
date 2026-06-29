@@ -1,4 +1,4 @@
-
+Enhance your Namecheap VPN experience with Namecheap VPN high-speed App: malware-blocker & streaming-optimization, the #1 app. Includes malware-blocker and streaming-optimization
 
 
 
